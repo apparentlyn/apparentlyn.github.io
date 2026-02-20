@@ -1,2 +1,2 @@
 # apparentlyn.github.io
-blackboardnnn
+blackboardnnn keyboard input so slow
